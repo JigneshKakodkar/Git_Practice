@@ -1,0 +1,1 @@
+The Titanic was the largest passenger liner of its time. A romance between Rose and Jack bloomed on this ship. When the ship hit an iceberg during its voyage, it tragically sank, taking with it the lives of hundreds of passengers, including Jack’s.
